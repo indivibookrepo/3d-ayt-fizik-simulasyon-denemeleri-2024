@@ -1,0 +1,1 @@
+# 3d-ayt-fizik-simulasyon-denemeleri-2024
